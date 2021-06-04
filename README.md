@@ -1,0 +1,1 @@
+# Auckland-Strongest-Man-n-Woman-2021
